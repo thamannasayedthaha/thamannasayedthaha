@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @thamannasayedthaha
 - 👀 I’m interested in Art and Poetry
-- 🌱 I’m currently learning BA Triple major
+- 🌱 I have completed my Masters from University of Nottingham
 - 📫 Reach me on my mail id : t4thamanna@Gmail.com
 
 <!---
